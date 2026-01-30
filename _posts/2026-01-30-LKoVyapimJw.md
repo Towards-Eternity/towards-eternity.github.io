@@ -10,7 +10,7 @@ tags: [Buddhism, Islam, personal journey, Firdaus Wong, faith, spirituality, bel
 
 In this blog post, we explore the inspiring journey of Firdaus Wong, a former Buddhist who transitioned to Islam at the age of 22. Firdaus recounts his experiences, doubts, and eventual discoveries that reshaped his understanding of faith and spirituality. His story highlights the importance of questioning beliefs and the search for truth.
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LKoVyapimJw?si=JiDQAdoczloIj1Hb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LKoVyapimJw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 ## Early Life and Beliefs
 
