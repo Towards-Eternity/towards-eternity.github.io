@@ -53,19 +53,19 @@ Our goal is not just to inform, but to guide hearts with wisdom and clarity.
 To reach people across cultures and nations, we publish content in:
 
 - [Turkish](https://www.youtube.com/channel/UCN5t14BCdTIQ-116TxJuBMg)  
-- [English] (https://www.youtube.com/channel/UCPubBVDCzu7IWWnitlkEsNw)
-- [German] (https://www.youtube.com/channel/UCXgw5eMqrQ-CsJG6kMNTJUg)
-- [French] (https://www.youtube.com/channel/UCBvhgS9IWN1fVaUjeF_D_SQ)
-- [Spanish] (https://www.youtube.com/channel/UC_iQV4qC9D-_yaHTrOMA61w)
-- [Russian] (https://www.youtube.com/channel/UC-sp5a6FjwCeVL80dWyyzYg)
-- [Arabic] (https://www.youtube.com/channel/UCgTGCJjooFkpX1FOzoLsjVw)
-- [Urdu] (https://www.youtube.com/channel/UCgN5eQUn0eciX4JoaV8PrLg)
-- [Bengali] (https://www.youtube.com/channel/UCLHhk-N4E_SsehT83_1g-Ww)
-- [Indonesian] (https://www.youtube.com/channel/UCpkeqRS00JaweS8lpqRKWYw)
-- [Uzbek] (https://www.youtube.com/channel/UC8rFHt55QcgqcuNxtFU4C5Q)
-- [Hindi] (https://www.youtube.com/channel/UCXobZaU5MGSD9tdZIZC5lIw)
-- [Persian] (https://www.youtube.com/channel/UCIQmsB2MW_nExgNb-tkVrrA)
-- [Chinese] (https://www.youtube.com/@TowardsEternityChina)
+- [English](https://www.youtube.com/channel/UCPubBVDCzu7IWWnitlkEsNw)
+- [German](https://www.youtube.com/channel/UCXgw5eMqrQ-CsJG6kMNTJUg)
+- [French](https://www.youtube.com/channel/UCBvhgS9IWN1fVaUjeF_D_SQ)
+- [Spanish](https://www.youtube.com/channel/UC_iQV4qC9D-_yaHTrOMA61w)
+- [Russian](https://www.youtube.com/channel/UC-sp5a6FjwCeVL80dWyyzYg)
+- [Arabic](https://www.youtube.com/channel/UCgTGCJjooFkpX1FOzoLsjVw)
+- [Urdu](https://www.youtube.com/channel/UCgN5eQUn0eciX4JoaV8PrLg)
+- [Bengali](https://www.youtube.com/channel/UCLHhk-N4E_SsehT83_1g-Ww)
+- [Indonesian](https://www.youtube.com/channel/UCpkeqRS00JaweS8lpqRKWYw)
+- [Uzbek](https://www.youtube.com/channel/UC8rFHt55QcgqcuNxtFU4C5Q)
+- [Hindi](https://www.youtube.com/channel/UCXobZaU5MGSD9tdZIZC5lIw)
+- [Persian](https://www.youtube.com/channel/UCIQmsB2MW_nExgNb-tkVrrA)
+- [Chinese](https://www.youtube.com/@TowardsEternityChina)
 
 Through these channels, we connect with people who are seeking truth, guidance, and spiritual understanding — no matter where they live.
 
